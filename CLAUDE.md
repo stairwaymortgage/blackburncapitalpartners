@@ -17,7 +17,7 @@ Site for soflocashhomebuyers.com (Jim chose this domain on Nov 18, 2026; blackbu
 - Never state a number of days to close. Say "close on your timeline."
 - Do not promise which closing costs we pay. Say we walk you through every cost before you sign.
 - No em dashes. No fake testimonials, stats or reviews.
-- No phone number until Jim gives one for this business. Never use the hotel line (954) 824-1894.
+- Phone: (954) 993-1625 (Jim's line, "for now", Nov 18, 2026). Never use the hotel line (954) 824-1894.
 - Keep the footer disclosure: buys as a principal, may assign to a partner as disclosed in the contract; Olga is a licensed Florida sales associate with The Keyes Company. Attorney to approve final wording.
 
 ## Leads
